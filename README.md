@@ -204,14 +204,6 @@
 <br/>
 <br/>
 <br/>
-![IMG_3171](https://user-images.githubusercontent.com/130210768/230714092-61b25663-202b-434c-937e-f00955f069fb.png)
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-
 ![IMG_3173](https://user-images.githubusercontent.com/130210768/230713657-5cb74b60-f9d0-45de-855d-df66c5dce7db.PNG)
 <br/>
 <br/>
