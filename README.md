@@ -143,7 +143,7 @@
 <br/>
 <br/>
 <br/>
-![Back to menu](https://summerxben.github.io/comics/#Menu)
+[Back to menu](https://summerxben.github.io/comics/#menu)
 <br/>
 <br/>
 <br/>
@@ -291,4 +291,4 @@
 <br/>
 <br/>
 <br/>
-![Back to menu](https://summerxben.github.io/comics/#Menu)
+[Back to menu](https://summerxben.github.io/comics/#menu)
