@@ -142,6 +142,7 @@
 <br/>
 <br/>
 <br/>
+![Back to menu](https://summerxben.github.io/comics/)
 <br/>
 <br/>
 <br/>
@@ -285,4 +286,8 @@
 <br/>
 <br/>
 ![IMG_3179](https://user-images.githubusercontent.com/130210768/230713670-fb718150-2b3e-4e8d-bd75-fa1dbbbeb5a3.PNG)
-
+<br/>
+<br/>
+<br/>
+<br/>
+![Back to menu](https://summerxben.github.io/comics/)
