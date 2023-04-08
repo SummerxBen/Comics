@@ -28,7 +28,7 @@
 <br/>
 
 ## 威尼斯泪纹 by Zeloco
-文转漫，建议配合原文食用
+文转漫，建议配合[原文](https://summerxben.github.io/stories/#%E5%A8%81%E5%B0%BC%E6%96%AF%E6%B3%AA%E7%BA%B9-by-%E9%9C%8D%E8%82%86)食用
 
 *后半部分有r18内容注意
 
@@ -166,7 +166,7 @@
 <br/>
 <br/>
 ## 金虹之心 by 玄玄玄玄玄
-依然是文转漫
+依然是文转漫，[原文](https://summerxben.github.io/stories/#%E9%87%91%E8%99%B9%E4%B9%8B%E5%BF%83-by-%E9%9C%8D%E8%82%86)
 
 
 依然是后半部分有r18内容注意
