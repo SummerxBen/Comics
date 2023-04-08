@@ -110,3 +110,26 @@
 <br/>
 <br/>
 ![威尼斯泪纹_027](https://user-images.githubusercontent.com/130210768/230710137-fbdb975c-7ab1-42c3-8a0d-46119f697557.jpg)
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+## 金虹之心 by 玄玄玄玄玄
+依然是文转漫
+
+
+依然是后半部分有r18内容注意
